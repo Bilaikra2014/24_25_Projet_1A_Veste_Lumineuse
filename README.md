@@ -1,6 +1,6 @@
 # 24_25_Projet_1A_Veste_Lumineuse
 
-Petite rue de Casbah
+Petite rue de Casba
 Au milieu de Casa
 Petite brune enroulée d'un drap
 Court autour de moi
